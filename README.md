@@ -14,8 +14,6 @@
 
 :blush: UN SIMPLE JOVEN con ganas de aprender y crecer 📚 
 
-💻 Soy un recién egresado, asi que no cuento con experiencia laboral 🙈
-
 📫 Contacto: **jorgedejesusmr@gmail.com**
 <!--Intro end-->
   </p>
